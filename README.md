@@ -6,6 +6,6 @@ https://www.spigotmc.org/members/phiclou.1578845/#resources
 
 Python and Java dev. 🪶
 
-PHILV Virus Creator 💫
+PHILV Creator 💫
 
 LA FLAME 🔥🤎🌵
